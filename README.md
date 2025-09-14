@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hamzaqayyum916
 - 👀 I’m interested in computer science
-- 🌱 I’m currently story telling, video editting and film making.
+- 🌱 I’m currently into story telling, video editting and film making.
 - 💞️ I’m looking to collaborate on useful stuff
 - 📫 How to reach me this is simple text me on my gmail hamzaqayyum916@gmail.com or dm me on insta at hamza__moon.
 
